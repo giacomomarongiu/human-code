@@ -1,4 +1,4 @@
-# instraction
+# instrUction
 Aprire un pacchetto di figurine
 Ce l’ho, mi manca!
 Che emozione, ogni volta che apro un pacchetto nuovo... chissà se troverò quella figurina così rara!
